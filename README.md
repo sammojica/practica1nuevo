@@ -1,2 +1,3 @@
 # practica1nuevo
-ayuda este es mi primer repositorio
+ayudaaaaaa este es mi primer repositorio
+wazaaaaaaaaaa
